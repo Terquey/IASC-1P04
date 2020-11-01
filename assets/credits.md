@@ -12,3 +12,8 @@ by Reitanna
 
 2020 - Licensed under
 Creative Commons 0
+
+-----
+
+"Cold Winter Forest" 
+by mripp is licensed under CC BY 2.0
