@@ -21,3 +21,9 @@ by mripp is licensed under CC BY 2.0
 -----
 
 "Fure's Cabin interior" by KatmaiNPS is licensed under CC BY 2.0
+
+-----
+
+"Fire crackling"
+by BiancaBothaPure
+2020 - This work is licensed under the Attribution Noncommercial License.
