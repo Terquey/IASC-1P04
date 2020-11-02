@@ -48,3 +48,8 @@ Attribution License
 by bwav
 2020 - Licensed under the 
 Creative Commons 0 License.
+
+-----
+
+"snowy cabin" by Jo Naylor is
+licensed under CC BY 2.0
