@@ -17,3 +17,7 @@ Creative Commons 0
 
 "Cold Winter Forest" 
 by mripp is licensed under CC BY 2.0
+
+-----
+
+"Fure's Cabin interior" by KatmaiNPS is licensed under CC BY 2.0
