@@ -53,3 +53,30 @@ Creative Commons 0 License.
 
 "snowy cabin" by Jo Naylor is
 licensed under CC BY 2.0
+
+-----
+
+"heartbeat-150bpm" by loudernoises
+licensed under Creative Commons 0 License.
+
+-----
+
+"Inception Horn" by Kubatko
+licensed under Creative Commons 0 License.
+
+-----
+
+"Don't Look Back (Crazy Chase Music)" by NightWolfCFM
+licensed under Attribution License
+
+-----
+
+"GASP_Rifle Shot" by bay_area_bob
+licensed under Creative Commons 0 License.
+
+-----
+
+"gun lee enfield 303 rifle fire shot" by kyles
+licensed under Creative Commons 0 License.
+
+
