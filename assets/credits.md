@@ -84,3 +84,7 @@ licensed under Creative Commons 0 License.
 "Gunshot, Distant, A" by InspectorJ
 licensed under Attribution License.
 
+-----
+
+"Winter forest, January 2009" by Dave_S. is licensed under CC BY 2.0
+
