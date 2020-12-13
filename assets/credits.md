@@ -97,3 +97,7 @@ licensed under Attribution Noncommercial License
 
 "Soft Wind" by florianreichelt
 licensed under Creative Commons 0 License
+
+-----
+
+"Winter Forest Sony RX10" by scotbot is licensed under CC BY 2.0
