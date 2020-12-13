@@ -7,7 +7,7 @@ A Cold Embrace is a game about life after a winter apocalypse. The past few week
 
 ## Play now!
 
-Play A Cold Embrace [here](final_build/AColdEmbrace_FinalBuild.html)
+Play A Cold Embrace [here](final_build/A Cold Embrace_FinalBuild.html)
 
 ### Playtest 
 
